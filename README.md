@@ -1,1 +1,0 @@
-# pag_ingmecatronica
